@@ -1,1 +1,1 @@
-trick or treat
+treat or trick
